@@ -1,1 +1,1 @@
-# Dzecт
+# Dzec
